@@ -1,4 +1,4 @@
-#SEYDR
+# SEYDR
 
 Esta historia comenzó hace muchísimos años en el plano feérico. Yo era una niña pequeña que vivía tranquila una ciudad de Eladryn, hasta que todo empezó a torcerse. Un día, como cualquier otro, un gran ataque asoló mi ciudad y, en cuestión de segundos, fuimos prácticamente arrasados. Logré esconderme bajo los cadáveres de mis padres y permanecí allí sola durante días. Cuando la esperanza ya estaba a punto de desvanecerse, vi una luz que rápidamente se transformó en una figura amable que me ayudó a salir de ese montón de cuerpos y escombros. Me alimentó y cuidó. Esa fue la primera vez que vi a Mimir.
 
